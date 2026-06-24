@@ -1,4 +1,4 @@
-# Hi, I'm Zahid 👋
+# Hi, I'm Md Zahidul  👋
 
 **Gen AI & Data Enthusiast — based in New York City** 🗽
 
