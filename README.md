@@ -22,7 +22,7 @@ A **self-taught data analyst** comfortable working across the full toolkit:
 ## 🤝 Community & Volunteering
 
 - **NYPD volunteer**
-- **School volunteer**
+- **School volunteer(ps.149q)**
 
 ## 🧠 Research
 
